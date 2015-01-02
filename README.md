@@ -18,8 +18,8 @@ Combine and brown:
 Combine, cover and reduce heat to low for an hour:
 
 - 48 ounces crushed tomatoes, canned
+- 4 tablespoons sriracha
 - 2 tablespoons chili powder
-- 2 tablespoons sriracha
 - 1 teaspoon ground cumin
 - 1 teaspoon ground oregano
 - Kosher salt, to taste
